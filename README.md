@@ -57,7 +57,7 @@ At the end of the day, trading isn't about finding that one "magic" trade that m
 Take it slow, don't be afraid to use tools that make your life easier, and always keep an eye on your risk. If you treat your trading like a business—balanced, calculated, and steady—you're already ahead of 90% of the people out there. Happy trading!
 <h2>Related HashTags</h2>
 #ForexPortfolio #ForexTrading #PortfolioOptimization #ForexMarket #InvestmentStrategy #RiskManagement #CurrencyTrading #AssetManagement #FinancialGrowth #ForexStrategy #WealthManagement #InvestWise #TradingTips #FinanceProfessional
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
